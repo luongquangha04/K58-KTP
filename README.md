@@ -50,4 +50,5 @@ Bài tập 2 k225480106010  Lương Quang Hà môn HQT CSDL
 ![image](https://github.com/user-attachments/assets/d0db75ae-af56-438b-96ad-49e3034433dc)
 ![image](https://github.com/user-attachments/assets/22b705ab-6c32-4a5c-9003-bc56f9f0e9f9)
 ![image](https://github.com/user-attachments/assets/bbabab72-f235-4385-ad87-332c22d4c125)
+![image](https://github.com/user-attachments/assets/690823b3-3ef9-4db1-a70b-5ea89307bd2a)
 

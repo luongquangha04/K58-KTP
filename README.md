@@ -1,4 +1,4 @@
-## BÀI TẬP VỀ NHÀ 03 - MÔN HỆ QUẢN TRỊ CSDL:
+## BÀI TẬP VỀ NHÀ 02- 03 - MÔN HỆ QUẢN TRỊ CSDL:
 
 ## DEADLINE: 23H59 NGÀY 30/03/2025
 
